@@ -1,2 +1,2 @@
 # poroflio1
-https://emanaboghaba.github.io/poroflio1/
+https://emanaboghaba.github.io/portoflio1/
